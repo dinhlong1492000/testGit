@@ -1,1 +1,1 @@
-xin chao các bạn mình là long
+xin chao các bạn mình là long, long ddaay 2
